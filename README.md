@@ -1,1 +1,0 @@
-# krnsdmdla.github.io
